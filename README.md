@@ -17,7 +17,7 @@ your own.  Pretty easy.
 
 Sample image pack: http://goo.gl/57iH97?gdriveurl
 
-Example using this template: https://youtu.be/pb__gc8hOL4
+AskUncleDave made a great tutorial video on how to use my template: https://youtu.be/-ELSSMyg7ME
 
 Making-of of a channel that i've done (BFMTV): https://youtu.be/47nKNk5X0XU
 
